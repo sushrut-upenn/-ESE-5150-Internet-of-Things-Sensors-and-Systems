@@ -3,6 +3,6 @@ Final Project Documents and Code
 
 Project Members - Juilee Kotnis and Sushrut Thakur 
 
-The code is attached above in the files 
+The code and the images of the final product are attached in the above files.  
 
 
